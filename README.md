@@ -1,6 +1,6 @@
 💫 Hi 👋, I'm  Mumin
 
-A passionate Hacker || Carder || Pentester from Enonymous
+A passionate Hacker || Carder || Pentester from Enonymouss
 
 - Contact Me 👉 ✉️ <@sigma69jokeer> For Collaboration or Anything Else. 😈😈
 - 🔭 I’m currently working on: Bug hunting & Security research

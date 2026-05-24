@@ -10,7 +10,7 @@ A passionate Hacker || Carder || Pentester from Enonymouss
 - 💬 Ask me about: Hacking, Carding, Pentesting, Security research
 - 📫 How to reach me: @sigma69jokeer
 - 😄 Pronouns: Evil
-- ⚡ Fun fact: I break things to fix them — ethically.
+- ⚡ Fun fact: I break things to fix them — ethically
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/rtxgamingwithmumin/) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@https://www.youtube.com/@RTXGAMINGWITHMUMIN) 
